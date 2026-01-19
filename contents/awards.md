@@ -1,12 +1,7 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Outstanding Student Leader Award, 2025.
+- Second Prize, National Electronic Design Competition, 2022.
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
-
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
-
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
+- National Encouragement Scholarship, 2022.
+- Second-Class Academic Scholarship, 2022.
+- Granted Design Patent, 2023.
